@@ -1,0 +1,1 @@
+Seputar Informasi Terkini dan Gaya Kehidupan Selebritis
